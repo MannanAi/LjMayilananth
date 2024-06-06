@@ -1,16 +1,16 @@
 # Mayilananth Lakshmipathi
 
-<a href='https://postimg.cc/MXN3JdkK' target='_blank'><img src='https://i.postimg.cc/MXN3JdkK/20240602-215230.jpg' border='0' aspectratio='16:9' alt='20240602-215230'/></a>
+<a href='https://postimg.cc/MXN3JdkK' target='_blank'><img src='https://i.postimg.cc/MXN3JdkK/20240602-215230.jpg' border='0' width='100%' aspectratio='16:9' alt='20240602-215230'/></a>
 
-Here You Can Know All Information About Our Developer Mayil
+Here You Can Know All Information About Our Me
 
 # Work
 
-He Is The Managing Director Of Mannan Media Network And Chief Operations Officer Of Mannan Ai Technologies
+I Am Was The Managing Director Of Mannan Media Network And Chief Operations Officer Of Mannan Ai Technologies
 
 # Aim
 
-His Aim Was To Start A Satellite Television Channel Soon It Will Arrive On This World
+My Aim Was To Start A Satellite Television Channel Soon It Will Arrive On This World
 
 # Social Media
 
