@@ -1,6 +1,6 @@
 # Mayilananth Lakshmipathi
 
-<a href='https://youtu.be.com/c/MayilGaming' target='_blank'><img src='https://i.postimg.cc/MXN3JdkK/20240602-215230.jpg' border='0' width='100%' aspectratio='16:9' alt='20240602-215230'/></a>
+<a href='https://youtube.com/c/MayilGaming' target='_blank'><img src='https://i.postimg.cc/MXN3JdkK/20240602-215230.jpg' border='0' width='100%' aspectratio='16:9' alt='20240602-215230'/></a>
 
 Here You Can Know All Information About Me
 
